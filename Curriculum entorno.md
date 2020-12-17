@@ -2,9 +2,11 @@
 
  
 
-**DATOS PERSONALES** 
-
 ![YO](https://e00-marca.uecdn.es/assets/multimedia/imagenes/2020/07/15/15947910015351.jpg)
+
+
+
+**DATOS PERSONALES** 
 
 NOMBRE: Alejandro Gil Romero 
 
