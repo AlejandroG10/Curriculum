@@ -12,7 +12,7 @@ NOMBRE: Alejandro Gil Romero
 
 TELEFONO: **636548462** 
 
-CORREO ELECTRONICO: [tailerby10@gmail.com](mailto:tailerby10@gmail.com) 
+CORREO ELECTRONICO: [alejandrogilromero@fp.iesromerovargas.com](mailto:alejandrogilromero@fp.iesromerovargas.com) 
 
 FECHA DE NACIMIENTO: 23/05/1999 
 
